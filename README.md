@@ -1,3 +1,4 @@
 ## This is the Git Tutorial with Krish
 
-Now adding new file 
+## Hare Krishna Hare Krishna KRishna Krishna Hare Hare 
+## Hare Rama Hare Rama Rama Rama Hare Hare 
